@@ -41,7 +41,6 @@ To catch the world with a relentless community, blending meme power with global 
 - **Twitter:** [twitter.com/aspasiameme](https://twitter.com/aspasiameme)—grow to 10k!
 - **Telegram:** [t.me/aspasiameme](https://t.me/aspasiameme)—rally the roar!
 - **Discord:** [discord.gg/eCkPmQcAcD](https://discord.gg/eCkPmQcAcD)—join the pack!
-- **Holders:** 8 and climbing—organic traction.
 
 ## 8. Partnerships
 - **Strategic:** Raydium (LP), Helius (RPC)—battle-tested.
